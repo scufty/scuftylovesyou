@@ -1,2 +1,2 @@
 # scuftylovesyou
-Do you love me back?
+Thank you.
